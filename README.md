@@ -1,4 +1,4 @@
-### Hi there 👋
+### Assalamu'alaikum, hello there 👋
 
 <!--
 **sigit485/sigit485** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
